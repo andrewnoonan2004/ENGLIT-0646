@@ -29,7 +29,11 @@
 11. He brings alcohol and cigarettes
 12. Jenna and Tara end up freezing to death after attempting to walk home drunk
 13. Four more people fleeing the city and ask to be let into the reservation
-14. Mark Phillips despera
+14. Mark Phillips desperately rushes forward, and is shot by Scott.
+
+
+## Chapters 22-Acknowledgements
+
 
 
 
