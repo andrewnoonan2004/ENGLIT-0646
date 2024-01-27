@@ -42,7 +42,10 @@
 7. An all-out brawl is occurring by the shop
 8. Scott actually seemed to be a force for good in this situation, breaking up the fight
 9. Scott doesn't seem to be doing too hot by page 187
-10. 
+10. Auntie Aileen died
+11. Twenty-three people have died
+12. They suspect Scott of Cannabalism
+13. 
 
 
 
