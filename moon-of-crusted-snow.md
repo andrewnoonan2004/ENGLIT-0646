@@ -33,7 +33,10 @@
 
 
 ## Chapters 22-Acknowledgements
-1. 
+1. Aileen says that their world has already ended multiple times, it isn't ending now
+2. Alliances are forming
+3. The death toll is rising steadily
+4. 
 
 
 
