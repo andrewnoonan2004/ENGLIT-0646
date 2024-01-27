@@ -45,7 +45,11 @@
 10. Auntie Aileen died
 11. Twenty-three people have died
 12. They suspect Scott of Cannabalism
-13. 
+13. Scott is literally planning to eat a dead body
+14. Evan confronts him about it, and Scott shoots him three times
+15. Meghan Connor blew his brains out
+16. Isiah and Tyler dumped Scott's body near Mark Phillips'
+17. Evan is presumably dead
 
 
 
