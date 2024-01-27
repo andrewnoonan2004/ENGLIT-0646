@@ -36,7 +36,8 @@
 1. Aileen says that their world has already ended multiple times, it isn't ending now
 2. Alliances are forming
 3. The death toll is rising steadily
-4. 
+4. Jacob McCloud hung himself presumably out of guilt for the deaths of Jenna and Tara
+5. 
 
 
 
