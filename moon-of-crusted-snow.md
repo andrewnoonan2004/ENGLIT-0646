@@ -41,7 +41,8 @@
 6. The Story of Nanabush and the geese makes me think Scott is Nanabush and the other people on the rez are the geese
 7. An all-out brawl is occurring by the shop
 8. Scott actually seemed to be a force for good in this situation, breaking up the fight
-9. 
+9. Scott doesn't seem to be doing too hot by page 187
+10. 
 
 
 
