@@ -37,7 +37,8 @@
 2. Alliances are forming
 3. The death toll is rising steadily
 4. Jacob McCloud hung himself presumably out of guilt for the deaths of Jenna and Tara
-5. 
+5. Scott's influence is growing, and he seems to be an almost oppressive force for many of the people in the reservation
+6. The Story of Nanabush and the geese makes me think Scott is Nanabush and the other people on the rez are the geese
 
 
 
