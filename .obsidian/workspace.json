@@ -13,7 +13,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "daisy-story.md",
+                "file": "moon-of-crusted-snow.md",
                 "mode": "source",
                 "source": false
               }
@@ -85,7 +85,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "daisy-story.md",
+                "file": "moon-of-crusted-snow.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -102,7 +102,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "daisy-story.md",
+                "file": "moon-of-crusted-snow.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -125,7 +125,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "daisy-story.md"
+                "file": "moon-of-crusted-snow.md"
               }
             }
           }
@@ -146,6 +146,8 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "03dd8668fdbff1d6",
-  "lastOpenFiles": []
+  "active": "d98373492e2f080e",
+  "lastOpenFiles": [
+    "daisy-story.md"
+  ]
 }

@@ -15,5 +15,21 @@
 1. The dreams of some of the native people are becoming very worrisome, and perhaps are a sense of foreshadowing
 2. With very little communication with the outside world, perhaps people are expecting the worst.
 
+## Chapters 12-21
+1. We learn that the situation is more widespread than we initially thought
+2. their is rioting in major cities
+3. We learn this through Kevin and Nick
+4. They stole snow-plows to escape from gibson
+5. They killed two people who were trying to attack them
+6. They leave tracks that end up being followed by Justin Scott
+7. Justin Scott arrives at the reservation, heavily armed and seeking refuge
+8. Evan doesn't think they should allow him in, but the other members of the council believe that they should let him stay
+9. They plan to wait until the time is right to let the other people in the reservation know about him, but he decides to insert himself into their meeting an introduce himself
+10. Justin Scott decides to have a party with Cam and two girls named Jenna and Tara
+11. He brings alcohol and cigarettes
+12. Jenna and Tara end up freezing to death after attempting to walk home drunk
+13. Four more people fleeing the city and ask to be let into the reservation
+14. Mark Phillips despera
+
 
 
