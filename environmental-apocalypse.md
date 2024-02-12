@@ -16,4 +16,15 @@
 4. California are the bad guys as per usual.
 
 
-## Lecture Notes
+## Lecture/Group Discussion Notes
+What is unique about Environmental Apocalypse:
+1. Slower
+2. adaptation, not a total collapse
+3. Government's step in to control resources
+4. we can be more responsible in a sense
+## One of our stories has too much water, and the other doesn't have enough
+1. "Venice Drowned" takes place sometime after 2040
+2. The Tourism agency in Venice has changed from merely visiting the place to appreciate its beauty, to looting it.
+3. Class plays an important part in this story, where only rich people can admire these artifacts
+4. The Japanese tourists take these as a status symbol
+5. Carlo feels a tension between what his job is, and the fact that many of these tourists are experiencing the same phenomenom.
